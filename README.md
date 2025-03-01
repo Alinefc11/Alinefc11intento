@@ -9,5 +9,5 @@
 ---
 ## 🌍 Conéctate conmigo  
 📫 **Email:** [alinefernandezcanisales@gmail.com](mailto:alinefernandezcanisales@gmail.com)  
-💼 **LinkedIn:** [linkedin.com/in/www.linkedin.com/in/aline-fernandez-canisales-5449702b5](https://linkedin.com/in/www.linkedin.com/in/aline-fernandez-canisales-5449702b5)  
+💼 **LinkedIn:** [www.linkedin.com/in/aline-fernandez-canisales-5449702b5](https://linkedin.com/www.linkedin.com/in/aline-fernandez-canisales-5449702b5)  
 🐦 **Twitter:** [@alinecanisales](https://x.com/alinecanisales?t=BZmgvRgfwY3_nTAE798U9g&s=08)  
